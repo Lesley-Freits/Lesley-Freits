@@ -8,3 +8,5 @@
 -⚘ Meus pronomes são _ela/dela_
 
 -🎶 gosto de escutar musicas
+
+-🐈‍⬛ gosto de animais
